@@ -15,7 +15,7 @@ Formato de pre-examen final
 [[Plan Dieta Antiinflamatoria](https://docs.google.com/document/d/1nlLnvPjm7hvpMhTyEIGge0-ZcgqiiOBnEsHK6djdaTo/edit?usp=sharing)]
 
 ### Se adjunta una muestra de como llevar el control de pulsaciones
-[[Control Cardio](AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
+[[Control Cardio](https://docs.google.com/spreadsheets/d/1gJtESkey6PG5Hb5lApyO7LOfaQ5ZsseCWIs0QdZjmHs/edit?usp=sharing)]
 
 ### Presentaciones sobre rutinas y ejercicios para mantener el físico ante cambios alimenticios.
 [[Presentaciones]((# Proyecto Integrador Nro 3 - Formato de pre-examen final
@@ -33,7 +33,7 @@ Formato de pre-examen final
 [[Plan Dieta Antiinflamatoria](https://docs.google.com/document/d/1nlLnvPjm7hvpMhTyEIGge0-ZcgqiiOBnEsHK6djdaTo/edit?usp=sharing)]
 
 ### Se adjunta una muestra de como llevar el control de pulsaciones
-[[Control Cardio](AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
+[[Control Cardio](https://docs.google.com/spreadsheets/d/1gJtESkey6PG5Hb5lApyO7LOfaQ5ZsseCWIs0QdZjmHs/edit?usp=sharing)]
 
 ### Presentaciones sobre rutinas y ejercicios para mantener el físico ante cambios alimenticios.
 [[Presentaciones](https://app.presentations.ai/view/yuBtY)]
