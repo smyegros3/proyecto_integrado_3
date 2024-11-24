@@ -12,7 +12,7 @@ Formato de pre-examen final
 * Acompaña al plan, un sistema de control en los ejercicios físicos rutinarios a desarrollar, _verificando pulsaciones_.
 
 ### Se adjunta el plan  con calendario
-[[Plan Dieta Antiinflamatoria](AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
+[[Plan Dieta Antiinflamatoria](https://docs.google.com/document/d/1nlLnvPjm7hvpMhTyEIGge0-ZcgqiiOBnEsHK6djdaTo/edit?usp=sharing)]
 
 ### Se adjunta una muestra de como llevar el control de pulsaciones
 [[Control Cardio](AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
@@ -30,7 +30,7 @@ Formato de pre-examen final
 * Acompaña al plan, un sistema de control en los ejercicios físicos rutinarios a desarrollar, _verificando pulsaciones_.
 
 ### Se adjunta el plan  con calendario
-[[Plan Dieta Antiinflamatoria](AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
+[[Plan Dieta Antiinflamatoria](https://docs.google.com/document/d/1nlLnvPjm7hvpMhTyEIGge0-ZcgqiiOBnEsHK6djdaTo/edit?usp=sharing)]
 
 ### Se adjunta una muestra de como llevar el control de pulsaciones
 [[Control Cardio](AQUI VA LA DIRECCION COMPARTIDA DEL ARCHIVO)]
