@@ -18,7 +18,7 @@ Formato de pre-examen final
 [[Control Cardio](https://docs.google.com/spreadsheets/d/1gJtESkey6PG5Hb5lApyO7LOfaQ5ZsseCWIs0QdZjmHs/edit?usp=sharing)]
 
 ### Presentaciones sobre rutinas y ejercicios para mantener el físico ante cambios alimenticios.
-[[Presentaciones]((# Proyecto Integrador Nro 3 - Formato de pre-examen final
+[[Presentaciones](https://app.presentations.ai/view/yuBtY6)
 
 ## Plan de estabilización y desinflación corporal en adultos de 40+ años.
 
